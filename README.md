@@ -1,1 +1,1 @@
-# widding
+# wedding
